@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Rishabh: @RishabhofHouseOoma
+- 👀 I’m interested in philosophy, building applications, books, food <3
+- 📫 How to reach me @rish.jpeg on IG and @allAuover on twitter 
